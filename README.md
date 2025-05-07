@@ -1,1 +1,0 @@
-# Belidz-Daniela-Vcard
